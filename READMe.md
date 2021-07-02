@@ -11,4 +11,3 @@ Unlimited Everything.
 
 لینک گوگل پلی
 https://play.google.com/store/apps/details?id=com.magmon.cartooncraft
-دانلود:https://t.me/c/1249874800/60184
